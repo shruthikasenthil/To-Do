@@ -1,1 +1,1 @@
-![image](https://github.com/shruthikasenthil/To-Do/assets/112261138/c81951a2-6f49-4c84-8e14-d4cbf0dc5934)
+![Screenshot (310)](https://github.com/shruthikasenthil/To-Do/assets/112261138/50a68087-225c-48e2-934b-f601307a385f)
